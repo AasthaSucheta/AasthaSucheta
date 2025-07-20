@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AasthaSucheta
 -  I’m currently a first year computer science engineering student.
--  -How to connect: linkedin.com/in/aastha-sucheta-grahacharya-a31921327
+-  -How to connect: here's my linkedIn Profile: linkedin.com/in/aastha-sucheta-grahacharya-a31921327
 - My journey in technology has just begun, and I am thrilled to explore new horizons. 
 - Hobbies: Painting,writing,singing,reading.
 
